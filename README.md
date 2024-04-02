@@ -19,8 +19,3 @@
 - 
 - Currently learning Web Development by Self
 - 
-- I’m currently open for an Intern or a new job opportunity, this is [my resume]([https://read.cv/0xabdulkhalid](https://velog.velcdn.com/images/boooyo0914/profile/508529ae-e6f2-4c02-b078-917f18b168f7/image.jpg))
-
-<br><br>
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif](https://velog.velcdn.com/images/boooyo0914/profile/508529ae-e6f2-4c02-b078-917f18b168f7/image.jpg"><br><br>
